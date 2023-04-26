@@ -1,2 +1,2 @@
 # niconet
-Somos Niconet Inc. una empresa internacional en la cual hay muchos proyectos por adelante y ya realizados en varias plataformas.
+Somos Niconet Inc. una empresa no gubernamental/ONG en la cual hay muchos proyectos por adelante y ya realizados en varias plataformas.
